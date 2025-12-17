@@ -1,6 +1,4 @@
 
-死于理想主义
-
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=yuyi-yutie)](https://github.com/anuraghazra/github-readme-stats) 
 
 <!--
