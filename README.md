@@ -1,2 +1,4 @@
 
-Nothing here but enjoy yourself!
+死于理想主义——
+
+Die of idealism——
