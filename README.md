@@ -1,5 +1,5 @@
 
-# **死于理想主义**
+# **死于理想主义 Die from idealism**
 
 <!-- Statistics: Commit series -->
 <picture>
